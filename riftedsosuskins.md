@@ -4,6 +4,6 @@
 # [Rimiku Scarlet](https://rifted.s-ul.eu/kuZMsER4)
 ![](https://osu.ppy.sh/ss/17200959/2617)
 
-# [Rimiku Scarlet DT](https://rifted.s-ul.eu/5JG6u4Xm)
+# [Rimiku Scarlet DT](https://rifted.s-ul.eu/FLNdJgGx)
 ![](https://osu.ppy.sh/ss/17200967/a31b)
 
