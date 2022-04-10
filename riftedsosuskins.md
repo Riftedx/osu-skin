@@ -1,9 +1,9 @@
 # Rifted Skin! 
 # Old version on the mega, https://mega.nz/folder/gXp3DQwL#0Lj08MWCHNV_4gmdnUzTvA
 
-# [Rimiku Scarlet](https://rifted.s-ul.eu/MGs0Ezi3)
-![](https://osu.ppy.sh/ss/17200959/2617)
+# [Rifted Skin Revamp](https://rifted.s-ul.eu/1xbFlWqU)
+![](https://osu.ppy.sh/ss/17716991/52c7)
 
-# [Rimiku Scarlet DT](https://rifted.s-ul.eu/FLNdJgGx)
-![](https://osu.ppy.sh/ss/17200967/a31b)
+# [Rifted Skin Revamp DT](https://rifted.s-ul.eu/fQr9IhSd)
+![](https://osu.ppy.sh/ss/17717013/f809)
 
