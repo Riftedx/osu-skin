@@ -1,4 +1,4 @@
-# Rifted Skin! 
+# Rifted Skin
 # Old version on the mega, https://mega.nz/folder/gXp3DQwL#0Lj08MWCHNV_4gmdnUzTvA
 
 # [Rifted Skin Revamp](https://rifted.s-ul.eu/1xbFlWqU)
