@@ -5,5 +5,5 @@
 ![](https://rifted.s-ul.eu/riftedskin/kQknidf3)
 
 # [Rifted Skin Revamp DT](https://rifted.s-ul.eu/riftedskin/C1mUE2cB)
-![](https://rifted.s-ul.eu/riftedskin/kQknidf3)
+![](https://rifted.s-ul.eu/riftedskin/uzjGPhxc)
 
